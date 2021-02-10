@@ -1,0 +1,1 @@
+take the pizza base and spread the pizza sauce on it and sprinkle the cheese on it and bake it in the oven
